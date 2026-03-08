@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-HEME970514HDFRYM03
+HEME970514HDFRYM03
